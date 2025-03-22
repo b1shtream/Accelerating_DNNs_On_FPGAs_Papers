@@ -1,1 +1,1 @@
-
+- [https://nhigham.com/wp-content/uploads/2019/05/talk12-constantinides.pdf](https://nhigham.com/wp-content/uploads/2019/05/talk12-constantinides.pdf)
